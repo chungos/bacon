@@ -2,15 +2,16 @@
 This is a sweet style smokey bacon recipe
 
 # Basic recipe
-- 2 Kg of pork belly( ask butcher to pre-slice! ), not necessary to pre-slice. Personally, can't be bovv'ed.
+- 2 Kg of pork belly( ask butcher to pre-slice! ), not necessary to pre-slice. Personally, can't be bovv'ed to slice. 
 - 1/4 cup of brown sugar or demarara recipe
 - 1/4 cup of sea salt( don't use iodised salt as its too salty salt...yeah i know...)
 - 2 teaspoons of pink salt(sodium nitrite) <- not necessary if pork if known to be superfresh, its for ensuring bacon doesn't turn into fatal bacon
 
 ## Add the following super tasty power-ups 
 ### For maple maple maple( maple cubed smoked bacon )
-- Add 1/4 cup of maple syrup
+- Add 1/4 cup of maple syrup( Syrup not maple flavoured pleaz )
 - (Optional)Add a shot of maple finished crown royal Canadian whisky
+- Using maple wood to smoke makes it maple maple maple bacon
 ### For Asian sweet sriracha bacon
 - Add 1/8 cup of hoisin and 1/8 cup of sriacha
 ### Five spice/hoisin aka char siew chinese pork
@@ -19,7 +20,7 @@ This is a sweet style smokey bacon recipe
 ## Instructions
 1. Mix pork, salt, sugar and pink salt in a big bowl or receptacle. 
 2. Place bowl or recptable of immature bacon in the fridge for a week. 
-3. Get on with your life for 5-10 days and let bacon do its thing. Walk a pracing hill filled with possums, sing a song using only Mongolian throat singing, dress for a fantasy talk show in your mind with CG Jung. 
+3. Get on with your life for 5-10 days and let bacon do its thing. Walk a pracing hill filled with possums, sing a song using only Mongolian throat singing, dress for a fantasy talk show in your mind with CG Jung. If its unsliced flip it each day to let the ingredients soak in. 
 4. Take bacon out and smoke it with maple wood. Or hickory, pecan. Or all three woods for about 2+ hours. I usually do a double smoke once first lot of wood turns to ash.
 NOTE: Don't worry about soaking the wood. Have found its not necessary. All that whisky would be better served in one's gullet than in wood. 
 5. Go crazy and mix 1/4 cup of maple syrup & maple finished crown royal canandian whisky. 
