@@ -20,7 +20,7 @@ This is a sweet style smokey bacon recipe
 
 ## Instructions
 1. Mix pork, salt, sugar and pink salt in a big bowl or receptacle. 
-2. Place bowl or recptable of immature bacon in the fridge for a week. 
+2. Place bowl or receptable of immature bacon in the fridge for a week. 
 3. Get on with your life for 5-10 days and let bacon do its thing. Walk a pracing hill filled with possums, sing a song using only Mongolian throat singing, dress for a fantasy talk show in your mind with CG Jung. If its unsliced flip it each day to let the ingredients soak in. 
 4. Take bacon out and smoke it with maple wood. Or hickory, pecan. Or all three woods for about 2+ hours. I usually do a double smoke once first lot of wood turns to ash.
 NOTE: Don't worry about soaking the wood. Have found its not necessary. All that whisky would be better served in one's gullet than in wood. 
