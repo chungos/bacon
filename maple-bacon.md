@@ -6,6 +6,7 @@ This is a sweet style smokey bacon recipe
 - 1/4 cup of brown sugar or demarara recipe
 - 1/4 cup of sea salt( don't use iodised salt as its too salty salt...yeah i know...)
 - 2 teaspoons of pink salt(sodium nitrite) <- not necessary if pork if known to be superfresh, its for ensuring bacon doesn't turn into fatal bacon
+- Maple or hickory or pecan or all woods( just hit bunnigs bbq section )
 
 ## Add the following super tasty power-ups 
 ### For maple maple maple( maple cubed smoked bacon )
@@ -29,7 +30,7 @@ NOTE: Don't worry about soaking the wood. Have found its not necessary. All that
 
 # About smoking without a dedicated smoker
 - Don't need a dedicated smoker to smoke. 
-- Smoking on bbq like a weber or the stove top using foil and wood
+- Ye can smoke on a bbq like a weber or the stove top using foil and wood
 # How is this manner of smoking possible ye conjurer of combustibles?
 - Get some foil and roll it out about two a4 sheets
 - Place about two handfuls of wood in the foil
