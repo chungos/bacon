@@ -1,2 +1,4 @@
 # bacon
-bacon recipies
+Collection of bacony recipes of deliciousness
+
+
