@@ -52,6 +52,7 @@ NOTE: Don't worry about soaking the wood. Have found its not necessary. All that
 - BLT or BLCT( add chicken to bacon lettuce tomato sandwich with mayo) - make it a club three layer, and toast bread in remaining bacon fat
 - Get some lurvely sharp, sweet, complex parmagianno reggiano( yes, i can't spelz gud) and make a carbonara fetticine( no cream please)
 - A good fry up with eggs cooked in bacon fat, baked beans, some oinky bangers( recipe for another time), tomato, black/white pudding, soda/potato bread and a guiness
+- Make a bloody fubar cocktail ala bloody mary but with added raw oyster, slice of bacon, tonnes of fave hawt sauce, twist of lime and plenty of fresh cracked pepper with a pilsner chaser
 
 # For future recipe experiments
 - Mix slow brew coffee, maple, whisky, ghost chilli(!) cure bacon
