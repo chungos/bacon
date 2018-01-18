@@ -26,7 +26,7 @@ This is a sweet style smokey bacon recipe
 NOTE: Don't worry about soaking the wood. Have found its not necessary. All that whisky would be better served in one's gullet than in wood. 
 5. Go crazy and mix 1/4 cup of maple syrup & maple finished crown royal canandian whisky. 
 6. Use this to baste the bacon while smoking. OH yeah! 
-7. Eat and bask in the joy the fruit one's labours. 
+7. Eat and bask in the joy of one's labours and empirical evidence of a benevolent higher sentience that wants you to be happy.  
 
 # About smoking without a dedicated smoker
 - Don't need a dedicated smoker to smoke. 
