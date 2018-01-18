@@ -36,7 +36,7 @@ NOTE: Don't worry about soaking the wood. Have found its not necessary. All that
 - Place about two handfuls of wood in the foil
 - Fold it over into a lil foil capsule
 - Stab some holes in the foil 
-### For bbbq
+### For bbbq( extra b is for bring your own bbq )
 - Place it onto bbq rack or hot plate 
 - Once it starts smoking place bacon into bbq and put lid on( huzzah we haz smokerz! )
 - Forget about it for a few hours
